@@ -1,0 +1,1 @@
+Harry Potter was an Orphan cause his parents were killed by Voldemort.
